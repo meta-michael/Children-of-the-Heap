@@ -1,0 +1,27 @@
+- [[Aug 4th, 2024]]
+	- We need to recruit strong women for this party, #Delora remembered there was a BJJ gym nearby. There was also an adventurer's bar that would be a good place to check
+		- The gym was hosting a closed practice today, but #Casmus offered to be a practice dummy to enable us to try to recruit others.
+			- #Casmus rolled with a strong half-elf and invited her to the party. She agreed if he could best her in a sparring session. Long story short, #Casmus beat a woman into submission to go to a party with him.
+		- We headed to the adventurer's bar. #Mackenzie found a group of women, led by a girl named #Seraphina and tried to recruit them to go to the party. She rizzed 'em with the 'tism and we got 2 more strong women. #Delora approached #Russell's group and invited his companions as well, so 2 more strong women to the group.
+	- We went to a tailor to get new clothes for the party.
+	- #Seraphina invited us to her parent's house to pre-game, so we head over with the women #Casmus and #Mackenzie recruited.
+		- Weird teenage drama between #Delora and #Seraphina, but seems like they might be friends?
+		- We started doing shots.
+			- Everyone besides me and #GB got a little drunk.
+	- We headed to the club, the [[Wicked Warrior]].
+		- The club is massive, and on the outskirts of the city. Somewhat close to the [[Slumlands]].
+		- We go to a separate section, a private party.
+		- Everyone besides me takes more shots at the party. Everyone looks okay so far.
+		- #Schiffra went missing, and #Casmus was entirely convinced the party was a murder mystery.
+			- I did see a woman I hadn't seen before walking upstairs with #Schiffra.
+			- We decided to go upstairs and check, but before we go we grab BJJ girl and #GB to investigate.
+			- When we got upstairs, we saw doppelgangers and #Schiffra about to be killed by one.
+				- An absolute clusterfuck of a situation popped off. #Mackenzie grabbed #Schiffra and started running out.
+				- We tried to evacuate, but there were Oni and Doppelgangers everywhere. We got everyone out, lit the place up, and then cleaned up the stragglers.
+				- We talked to the town guard, and they informed us there has been a problem with dopplegangers and suggested we meet with the queen.
+	- After the club incident, we went to get tacos. #GB and #Schiffra came with us. #Seraphina was also there.
+		-
+		-
+		-
+	- We need to go into the sewers to clear out some bone devils.
+	-
